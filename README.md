@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sajithadilumina2002@gmail.com**
 
-- ⚡ Fun fact **When my code breaks, I blame it on lag—because it’s definitely not my fault!**
+- ⚡ **When my code breaks, I blame it on lag—because it’s definitely not my fault!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
